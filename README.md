@@ -31,6 +31,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/23/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
