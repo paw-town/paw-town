@@ -15,6 +15,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/23/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [aeszz](https://github.com/aeszz) is pawtown's clark kent!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [BEASTGUEST](https://github.com/BEASTGUEST) is pawtown's john doe!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bigguykoi](https://github.com/bigguykoi) is pawtown's tony stark!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bunchoffriends](https://github.com/bunchoffriends) is pawtown's anthony po!
@@ -26,6 +28,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/23/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kissbow](https://github.com/kissbow) is pawtown's carl grimes!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [lemonyada](https://github.com/lemonyada) is pawtown's tim drake!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
