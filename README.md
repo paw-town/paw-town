@@ -23,6 +23,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coypisopilled](https://github.com/coypisopilled) is pawtown's coy piso!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hamfoolish](https://github.com/hamfoolish) is pawtown's hal jordan!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hvmantorch](https://github.com/hvmantorch) is pawtown's johnny storm!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kissbow](https://github.com/kissbow) is pawtown's carl grimes!
@@ -32,6 +34,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oashushkitten](https://github.com/oashushkitten) is pawtown's jon kent!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
