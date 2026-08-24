@@ -39,6 +39,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [SOILMENT](https://github.com/soilment) is pawtown's barbara gordon!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
