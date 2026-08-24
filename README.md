@@ -9,7 +9,7 @@ $$\color{#fee4f2}note\ \color{#fee4f2}any\ \color{#fee4f2}problematic\ \color{#f
 <div align="center">
 
 
-${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/23/26}}}}$
+${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 
 ---
 
@@ -34,5 +34,7 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/23/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
