@@ -42,3 +42,5 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [waveriy](https://github.com/waveriy) is pawtown's harvey dent!
