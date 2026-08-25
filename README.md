@@ -11,13 +11,13 @@ $$\color{#fee4f2}note\ \color{#fee4f2}any\ \color{#fee4f2}problematic\ \color{#f
 
 ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
 
-hi guys this is a bummer to say, but at the moment i have to take a pause from paw-town and ponytown!! my laptop charger recently broke and my laptop is dead😭... FEEL FREE TO KEEP RECOMMENDING PEOPLE!! i will add them when im back and all recommendations are now up to date as of 1:45 am est, 8/25/26. 
-
 ---
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [aeszz](https://github.com/aeszz) is pawtown's clark kent!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [BEASTGUEST](https://github.com/BEASTGUEST) is pawtown's john doe!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [B3RDLY](https://github.com/B3RDLY) is pawtown's berdly!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bigguykoi](https://github.com/bigguykoi) is pawtown's tony stark!
 
@@ -40,6 +40,8 @@ hi guys this is a bummer to say, but at the moment i have to take a pause from p
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oashushkitten](https://github.com/oashushkitten) is pawtown's jon kent!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sketchyremorse](https://github.com/sketchyremorse) is pawtown's stephanie brown!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [SOILMENT](https://github.com/soilment) is pawtown's barbara gordon!
 
