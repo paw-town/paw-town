@@ -37,6 +37,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [nataliescatorccio](https://github.com/nataliescatorccio) is pawtown's natalie scatorccio!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oashushkitten](https://github.com/oashushkitten) is pawtown's jon kent!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
