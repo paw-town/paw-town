@@ -9,7 +9,9 @@ $$\color{#fee4f2}note\ \color{#fee4f2}any\ \color{#fee4f2}problematic\ \color{#f
 <div align="center">
 
 
-${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
+${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
+
+hi guys this is a bummer to say, but at the moment i have to take a pause from paw-town and ponytown!! my laptop charger recently broke and my laptop is dead😭... FEEL FREE TO KEEP RECOMMENDING PEOPLE!! i will add them when im back and all recommendations are now up to date as of 1:45 am est, 8/25/26. 
 
 ---
 
@@ -45,4 +47,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/24/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [verstaqqen](https://github.com/verstaqqen) is pawtown's max verstappen!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [waverIy](https://github.com/waveriy) is pawtown's harvey dent!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [zandiik](https://github.com/zandiik) is pawtown's dottore!
