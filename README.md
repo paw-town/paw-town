@@ -9,7 +9,7 @@ $$\color{#fee4f2}note\ \color{#fee4f2}any\ \color{#fee4f2}problematic\ \color{#f
 <div align="center">
 
 
-${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
+${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ---
 
