@@ -15,15 +15,25 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [aeszz](https://github.com/aeszz) is pawtown's clark kent!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Aspenolia](https://github.com/Aspenolia) is pawtown's azurewrath!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [BEASTGUEST](https://github.com/BEASTGUEST) is pawtown's john doe!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [B3RDLY](https://github.com/B3RDLY) is pawtown's berdly!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bigguykoi](https://github.com/bigguykoi) is pawtown's tony stark!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bill-cipher](https://github.com/bill-cipher) is pawtown's bill cipher!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bunchoffriends](https://github.com/bunchoffriends) is pawtown's anthony po!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coltlandtwins](https://github.com/coltlandtwins) is pawtown's ryland grace!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coypisopilled](https://github.com/coypisopilled) is pawtown's coy piso!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [fleshburn](https://github.com/fleshburn) is pawtown's vriska!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [GO-WILDCATS](https://github.com/GO-WILDCATS) is pawtown's troy bolton!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hamfoolish](https://github.com/hamfoolish) is pawtown's hal jordan!
 
@@ -35,11 +45,13 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mydigitalscape](https://github.com/mydigitalscape) is pawtown's robert chase!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [nataliescatorccio](https://github.com/nataliescatorccio) is pawtown's natalie scatorccio!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oashushkitten](https://github.com/oashushkitten) is pawtown's jon kent!
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oncology-angel](https://github.com/oncology-angel) is pawtown's loki laufeyson!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
@@ -50,6 +62,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/25/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [undyingregret](https://github.com/undyingregret) is pawtown's two time!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [verstaqqen](https://github.com/verstaqqen) is pawtown's max verstappen!
 
