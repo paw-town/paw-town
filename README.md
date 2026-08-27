@@ -23,7 +23,7 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bigguykoi](https://github.com/bigguykoi) is pawtown's tony stark!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bill-cipher](https://github.com/bill-cipher) is pawtown's bill cipher!
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [biII-cipher](https://github.com/biII-cipher) is pawtown's bill cipher!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bunchoffriends](https://github.com/bunchoffriends) is pawtown's anthony po!
 
