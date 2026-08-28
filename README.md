@@ -45,7 +45,7 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mydigitalscape](https://github.com/mydigitalscape) is pawtown's robert chase!
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mydigitalescape](https://github.com/mydigitalescape) is pawtown's robert chase!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
 
