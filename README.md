@@ -37,8 +37,6 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hamfoolish](https://github.com/hamfoolish) is pawtown's hal jordan!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hvmantorch](https://github.com/hvmantorch) is pawtown's johnny storm!
-
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kissbow](https://github.com/kissbow) is pawtown's carl grimes!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [lemonyada](https://github.com/lemonyada) is pawtown's tim drake!
@@ -52,6 +50,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [nataliescatorccio](https://github.com/nataliescatorccio) is pawtown's natalie scatorccio!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oncology-angel](https://github.com/oncology-angel) is pawtown's loki laufeyson!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [plsticpup](https://github.com/plsticpup) is pawtown's johnny storm!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
