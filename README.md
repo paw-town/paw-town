@@ -27,9 +27,21 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [bunchoffriends](https://github.com/bunchoffriends) is pawtown's anthony po!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [cashreggister](https://github.com/cashreggister) is pawtown's goomy!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Chemicalshot](https://github.com/Chemicalshot) is pawtown's wemmbu!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coltlandtwins](https://github.com/coltlandtwins) is pawtown's ryland grace!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coypisopilled](https://github.com/coypisopilled) is pawtown's coy piso!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Crxcifiedsklls](https://github.com/Crxcifiedsklls) is pawtown's neymar!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [DollsMassacre](https://github.com/DollsMassacre) is pawtown's modoka magica!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [duckseatbreads](https://github.com/duckseatbreads) is pawtown's john constantine!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [dukeshusband](https://github.com/dukeshusband) is pawtown's peter parker!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [fleshburn](https://github.com/fleshburn) is pawtown's vriska!
 
@@ -41,13 +53,23 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [lemonyada](https://github.com/lemonyada) is pawtown's tim drake!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mayumixx](https://github.com/mayumixx) is pawtown's tifa lockhnart!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mentally-stable](https://github.com/mentally-stable) is pawtown's q (bstd)!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [MiguelOharaL0ver](https://github.com/MiguelOharaL0ver) is pawtown's lyla!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mirrorgem](https://github.com/mirrorgem) is pawtown's lottie matthews!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [MY-BLOODY-VALENTlNE](https://github.com/MY-BLOODY-VALENTlNE) is pawtown's tom hanniger!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mydigitalescape](https://github.com/mydigitalescape) is pawtown's robert chase!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [NARCISSISTICPERSONALITYDISORDER](https://github.com/narcissisticpersonalitydisorder) is pawtown's john ward!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [nataliescatorccio](https://github.com/nataliescatorccio) is pawtown's natalie scatorccio!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [OlgaSinxer](https://github.com/OlgaSinxer) is pawtown's beatzzpurminote!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [oncology-angel](https://github.com/oncology-angel) is pawtown's loki laufeyson!
 
@@ -65,8 +87,16 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 8/27/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [undyingregret](https://github.com/undyingregret) is pawtown's two time!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [userrrxddd](https://github.com/userrrxddd) is pawtown's yotsuba koiwai!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [VERGILSSBEING](https://github.com/VERGILSSBEING) is pawtown's max vergil!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [verstaqqen](https://github.com/verstaqqen) is pawtown's max verstappen!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [waverIy](https://github.com/waveriy) is pawtown's harvey dent!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Xingqiukisser](https://github.com/Xingqiukisser) is pawtown's xingqiu!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [zandiik](https://github.com/zandiik) is pawtown's dottore!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [zyvism](https://github.com/zyvism) is pawtown's loveshot!
