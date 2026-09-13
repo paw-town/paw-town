@@ -53,6 +53,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/12/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [lemonyada](https://github.com/lemonyada) is pawtown's tim drake!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [LlMP-BlZKlT](https://github.com/LlMP-BlZKlT) is pawtown's fred durst!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mayumixx](https://github.com/mayumixx) is pawtown's tifa lockhart!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [mentally-stable](https://github.com/mentally-stable) is pawtown's q (bstd)!
