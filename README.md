@@ -53,7 +53,7 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [CherrieJam](https://github.com/CherrieJam) is pawtown's neo metal sonic!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [cherryflavoredfoamn](https://github.com/cherryflavoredfoamn) is pawtown's lyla (spiderverse)!
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [cherryflavoredfoam](https://github.com/cherryflavoredfoam) is pawtown's lyla (spiderverse)!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [coltlandtwins](https://github.com/coltlandtwins) is pawtown's ryland grace!
 
