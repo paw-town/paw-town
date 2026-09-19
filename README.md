@@ -95,7 +95,7 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kissbow](https://github.com/kissbow) is pawtown's carl grimes!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kiwiconiccc](https://github.com/kiwiconiccc) is pawtown's saiki kusuo!
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kiwiconiccc](https://github.com/kiwiconiccc) is pawtown's sakura haruka!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kyostro](https://github.com/kyostro) is pawtown's sucy manbavaran!
 
