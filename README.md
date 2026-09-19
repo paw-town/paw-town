@@ -43,6 +43,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [cashreggister](https://github.com/cashreggister) is pawtown's goomy!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [caswashere](https://github.com/caswashere) is pawtown's torchbearer (twenty øne pilots)!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [catbaret](https://github.com/catbaret) is pawtown's armand!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [celibrini](https://github.com/celibrini) is pawtown's fraser minten!
@@ -61,6 +63,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [DollsMassacre](https://github.com/DollsMassacre) is pawtown's modoka magica!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [dr-vanta](https://github.com/dr-vanta) is pawtown's dr vanta!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [duckseatbreads](https://github.com/duckseatbreads) is pawtown's john constantine!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [dukeshusband](https://github.com/dukeshusband) is pawtown's peter parker!
@@ -73,6 +77,10 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [fourthdoctor](https://github.com/fourthdoctor) is pawtown's fourth doctor!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [fukounagirl](https://github.com/fukounagirl) is pawtown's kaveh!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [galacticlegendd](https://github.com/galacticlegendd) is pawtown's reinhard (legend of the galatic heroes)!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [GO-WILDCATS](https://github.com/GO-WILDCATS) is pawtown's troy bolton!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [hamfoolish](https://github.com/hamfoolish) is pawtown's hal jordan!
@@ -80,6 +88,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Itrappedfan](https://github.com/Itrappedfan) is pawtown's froggydude!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [ilovegraysons](https://github.com/ilovegraysons) is pawtown's mark grayson!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [Jeverus](https://github.com/Jeverus) is pawtown's slasher (forsaken)!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [kikunya](https://github.com/kikunya) is pawtown's death the kid!
 
@@ -139,7 +149,11 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [SweetTenshi](https://github.com/SweetTenshi) is pawtown's yoisaki kanade!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [thedarklrd](https://github.com/thedarklrd) is pawtown's green (ava avm)!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [theemotionalside](https://github.com/theemotionalside) is pawtown's the heart (chonny's charming chaos compendium)!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [timstalkerdrake](https://github.com/timstalkerdrake) is pawtown's bernard dowd!
 
