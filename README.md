@@ -147,6 +147,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [SOILMENT](https://github.com/soilment) is pawtown's barbara gordon!
 
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sournoxious](https://github.com/sournoxious) is pawtown's deadpool!
+
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sweetdeathstar](https://github.com/sweetdeathstar) is pawtown's cassandra cain!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [SweetTenshi](https://github.com/SweetTenshi) is pawtown's yoisaki kanade!
