@@ -69,8 +69,6 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [dukeshusband](https://github.com/dukeshusband) is pawtown's peter parker!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [escapeartists](https://github.com/escapeartists) is pawtown's griefer!
-
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [flaskofvodka](https://github.com/flaskofvodka) is pawtown's tom (eddsworld)!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [fleshburn](https://github.com/fleshburn) is pawtown's vriska!
