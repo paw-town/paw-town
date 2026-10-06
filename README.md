@@ -137,8 +137,6 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [parameowia](https://github.com/parameowia) is pawtown's artificer!
 
-![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [plsticpup](https://github.com/plsticpup) is pawtown's johnny storm!
-
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sebvsene](https://github.com/sebvsene) is pawtown's jason todd!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [sketchyremorse](https://github.com/sketchyremorse) is pawtown's stephanie brown!
@@ -162,6 +160,8 @@ ${{\color{#feebf6}\small{\textsf{founded 8/23/26 last updated 9/19/26}}}}$
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [undyingregret](https://github.com/undyingregret) is pawtown's two time!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [userrrxddd](https://github.com/userrrxddd) is pawtown's yotsuba koiwai!
+
+![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [vaciIIator](https://github.com/vaciIIator) is pawtown's johnny storm!
 
 ![](https://i.postimg.cc/JzcbtDV1/9f3a7045-original.gif) [VERGILSSBEING](https://github.com/VERGILSSBEING) is pawtown's max vergil!
 
