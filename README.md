@@ -3,7 +3,7 @@
 $$\color{#e4b9d1}hi\ \color{#e4b9d1}welcome\ \color{#e4b9d1}to\ \color{#e4b9d1}pawtown\ 👀$$
 <div align="center">
   
-${{\color{#fdcde8}\small{\textsf{want to nominate someone? click}}}}$ [here.](https://pawtown.straw.page/) 
+${{\color{#fdcde8}\small{\textsf{people cannot read appearantly so i had to take the straw down...!}}}}$  
 
 $$\color{#fee4f2}note\ \color{#fee4f2}any\ \color{#fee4f2}problematic\ \color{#fee4f2}medias\ \color{#fee4f2}will\ \color{#fee4f2}not\ \color{#fee4f2}be\ \color{#fee4f2}added!$$ $$\color{#fee4f2}do\ \color{#fee4f2}not\ \color{#fee4f2}spam\ \color{#fee4f2}the\ \color{#fee4f2}gimmicks.$$ $$\color{#fee4f2}i'll\ \color{#fee4f2}try\ \color{#fee4f2}to\ \color{#fee4f2}update\ \color{#fee4f2}daily\ \color{#fee4f2}as\ \color{#fee4f2}much\ \color{#fee4f2}as\ \color{#fee4f2}i\ \color{#fee4f2}can.$$ $$\color{#fee4f2}but\ \color{#fee4f2}i\ \color{#fee4f2}will\ \color{#fee4f2}see\ \color{#fee4f2}your\ \color{#fee4f2}gimmick\ \color{#fee4f2}eventually.$$ $$\color{#fee4f2}want\ \color{#fee4f2}someone\ \color{#fee4f2}removed?\ \color{#fee4f2}follow\ \color{#fee4f2}the\ \color{#fee4f2}instructions$$ [here.](https://pawtown.straw.page/)
 <div align="center">
